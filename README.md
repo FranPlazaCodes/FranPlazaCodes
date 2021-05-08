@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Fran Plaza!
 - If you came here is because you are probably following my Youtube channel 😸
-- I hope you enjoy the content and do not hesitate to contact me for anything you need related to code.
+- I hope you enjoy the content and write to me if you like coding too.
 - Let's go to the Moon! 🚀🚀🚀
